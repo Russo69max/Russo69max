@@ -2,7 +2,6 @@ Bem vindo ao meu perfil 🏀
 
 ![Stephen Curry](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExbWxieTZxcHE3bDA0ZjZlbzIxYmp4ZHV0Y3AzNDIyMGU1dzNkaDExbiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3oEduJLAKnxIqSLdf2/giphy.gif)
 
-> "Success is not an accident, success is actually a choice." — Stephen Curry
 
 ---
 
