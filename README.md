@@ -1,6 +1,6 @@
 # 👑 Allen Iverson | "The Answer" 🏀
 
-![Allen Iverson](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2Fallen-iverson-gifs--57491332721583666%2F&psig=AOvVaw1Ua1ED6rslCKKMsRb57I72&ust=1749131069241000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCND6npTz140DFQAAAAAdAAAAABAE)
+![b893c001cc1753bbb20367970387f183](https://github.com/user-attachments/assets/c6e85d13-4992-45cd-b959-9a5e171a6627)
 
 > *"I don't do this for the money. I do it because I love the game. I do it because I'm a competitor."* — Allen Iverson
 
