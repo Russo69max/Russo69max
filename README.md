@@ -1,6 +1,6 @@
 Bem vindo ao meu perfil 🏀
 
-![Stephen Curry](https://www.google.com/imgres?q=player%20curry%20&imgurl=https%3A%2F%2Flncimg.lance.com.br%2Fcdn-cgi%2Fimage%2Fwidth%3D950%2Cquality%3D75%2Cfit%3Dpad%2Cformat%3Dwebp%2Fuploads%2F2024%2F12%2FStephen-Curry-1-aspect-ratio-512-320.jpg&imgrefurl=https%3A%2F%2Fwww.lance.com.br%2Fnba%2Fas-comemoracoes-de-stephen-curry-que-ultrapassaram-a-nba-relembre.html&docid=N7OrYrKXobiO_M&tbnid=uwLr-OLlO7uIpM&vet=12ahUKEwjykLmS8teNAxVnFrkGHS3mCoMQM3oECG4QAA..i&w=950&h=594&hcb=2&ved=2ahUKEwjykLmS8teNAxVnFrkGHS3mCoMQM3oECG4QAA)
+![Stephen Curry](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExbWxieTZxcHE3bDA0ZjZlbzIxYmp4ZHV0Y3AzNDIyMGU1dzNkaDExbiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3oEduJLAKnxIqSLdf2/giphy.gif)
 
 > "Success is not an accident, success is actually a choice." — Stephen Curry
 
