@@ -1,6 +1,6 @@
 Bem vindo ao meu perfil 🏀
 
-![Stephen Curry](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExbWxieTZxcHE3bDA0ZjZlbzIxYmp4ZHV0Y3AzNDIyMGU1dzNkaDExbiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3oEduJLAKnxIqSLdf2/giphy.gif)
+![Stephen Curry](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2Fallen-iverson-gifs--57491332721583666%2F&psig=AOvVaw1Ua1ED6rslCKKMsRb57I72&ust=1749131069241000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCND6npTz140DFQAAAAAdAAAAABAE)
 
 
 ---
@@ -43,13 +43,6 @@ I'm **Wardell Stephen Curry II**, a professional basketball player for the **Gol
 - 🎥 Producer — *Stephen Curry: Underrated* (Apple TV+ documentary)
 
 ---
-
-## 🌐 Let's Connect
-
-- [🔗 Official Website](https://stephencurry30.com)  
-- [🐦 Twitter](https://twitter.com/StephenCurry30)  
-- [📸 Instagram](https://www.instagram.com/stephencurry30)  
-- [🏀 NBA Profile](https://www.nba.com/player/201939/stephen-curry)
 
 ---
 
