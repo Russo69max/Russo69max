@@ -1,6 +1,6 @@
 Bem vindo ao meu perfil 🏀
 
-![Stephen Curry](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2F760686193337471414%2F&psig=AOvVaw39HhK5FWybNVEU5dCXn6iQ&ust=1749130200191000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCMj8u_Pv140DFQAAAAAdAAAAABAu)
+![Stephen Curry](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2F753227106424534783%2F&psig=AOvVaw3bVh539oTZA5cRR_BkGSIv&ust=1749130749708000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCPizp_rx140DFQAAAAAdAAAAABA6)
 
 > "Success is not an accident, success is actually a choice." — Stephen Curry
 
