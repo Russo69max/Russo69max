@@ -26,7 +26,7 @@ Sou **Allen Ezail Iverson**, também conhecido como **"The Answer"**, ex-armador
 - 🕶️ Eleito para o **Hall da Fama do Basquete** (2016)  
 - 🏁 Carreira com médias de **26.7 pontos / jogo**
 
----![HHNA](https://github.com/user-attachments/assets/9e2808bb-920d-48b0-bf95-3043e99b6293)
+![HHNA](https://github.com/user-attachments/assets/9e2808bb-920d-48b0-bf95-3043e99b6293)
 
 
 ## 💥 Legado
