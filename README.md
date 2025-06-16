@@ -10,9 +10,9 @@
 
 Sou **Allen Ezail Iverson**, também conhecido como **"The Answer"**, ex-armador da NBA e membro do Hall da Fama. Conhecido pela minha atitude destemida, estilo de jogo explosivo, e por redefinir o que significa ser um "underdog" com coração de gigante.
 
-- 📏 Altura: 1,83m  
+- 📏 Altura: 1,70m  
 - 🏀 Posição: Point Guard / Shooting Guard  
-- 🎓 Universidade: Georgetown  
+- 🎓 Universidade: Colaço
 - 🗓️ Draftado: 1ª escolha geral, 1996 (Philadelphia 76ers)
 
 ---
@@ -48,11 +48,6 @@ Sou **Allen Ezail Iverson**, também conhecido como **"The Answer"**, ex-armador
 ---
 
 ## 🌐 Conecte-se
-
-- 🔗 [Biografia na NBA](https://www.nba.com/player/947/allen-iverson)  
-- 📸 [Instagram (Fã-clube)](https://www.instagram.com/theofficialai3/)  
-- 📽️ [Melhores Momentos no YouTube](https://www.youtube.com/results?search_query=allen+iverson+highlights)  
-- 🏛️ [Naismith Hall of Fame](https://www.hoophall.com/hall-of-famers/allen-iverson/)
 
 ---
 
