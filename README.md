@@ -14,6 +14,7 @@ Sou **Allen Ezail Iverson**, também conhecido como **"The Answer"**, ex-armador
 - 🏀 Posição: Point Guard / Shooting Guard  
 - 🎓 Universidade: Colaço
 - 🗓️ Draftado: 1ª escolha geral, 1996 (Philadelphia 76ers)
+ e sou gayzinho, gosto de homens eteros sexuais
 
 ---
 
